@@ -1,4 +1,4 @@
-# 
+# professional NFT Bot for blur sniper bot | proxy-transactions & private-RPC-nodes is the best blur sniper bot, featuring proxy-transactions and private-RPC-nodes. Fast, smart, and
 
 
 
